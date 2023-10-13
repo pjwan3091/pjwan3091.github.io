@@ -11,4 +11,6 @@ Chelsea, Lotte Giants supporters
 
 **그냥 흘러가는 대로 살아가는중**
 
+~~귀찮은거 제일 싫어함~~
+
 [신무형] (https://www.youtube.com/watch?v=uAhB-7Gabnc)
