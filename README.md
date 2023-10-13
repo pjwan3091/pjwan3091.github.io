@@ -4,6 +4,7 @@
 -Busan, Korea
 
 Chelsea, Lotte Giants supporters
+
 -Chelsea for 7 years
 -Lotte for more than 10 years
 
